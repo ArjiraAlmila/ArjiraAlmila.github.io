@@ -1,0 +1,6 @@
+- [https://ArjiraAlmila.github.io](https://ArjiraAlmila.github.io)
+- [https://www.reddit.com/user/Specialist-Move9474/](https://www.reddit.com/user/Specialist-Move9474/)
+- [https://www.youtube.com/channel/UC9KcuQLuyj-Gj2u4V9WQfgQ](https://www.youtube.com/channel/UC9KcuQLuyj-Gj2u4V9WQfgQ)
+- [https://x.com/ArjiraAlmila](https://x.com/ArjiraAlmila)
+- [https://www.pinterest.com/arjiraalmila/](https://www.pinterest.com/arjiraalmila/)
+- [https://medium.com/@danielmackelson](https://medium.com/@danielmackelson)
